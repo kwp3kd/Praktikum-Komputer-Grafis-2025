@@ -1,0 +1,1 @@
+# Praktikum-Komputer-Grafis-2025
